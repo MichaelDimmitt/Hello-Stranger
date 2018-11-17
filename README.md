@@ -1,7 +1,7 @@
 ## Hello-Stranger 😉
 
 ## I want you to 
-## Think a good thing about someone else.
+## Think a good thing about someone else in this room.
 
 <br/>
 <br/>
