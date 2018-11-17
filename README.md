@@ -3,6 +3,19 @@
 ## I want you to 
 ## Think a good thing about someone else.
 
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+
+
+
+
+
+
+
 <hr><hr>
 
 # Now I will talk about a stranger
