@@ -1,9 +1,11 @@
 ## Hello-Stranger 😉
 
 ## I want you to 
-##  think a good thing about someone else.
+## Think a good thing about someone else.
 
-## Talk about a stranger.
+# Now I will talk about a stranger
+
+<hr><hr>
 
 ## Be a social person
 
