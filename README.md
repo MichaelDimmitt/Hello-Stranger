@@ -24,6 +24,21 @@
 
 ## Be a social person
 
+
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+
 ## I want to know how you got to be friends with your friend.
 
 ## I want to know how to say good things to you.
