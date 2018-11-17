@@ -46,9 +46,9 @@
 <br/>
 <br/>
 
-## I want to know how you got to be friends with your friend.
+## 1) I want to know how you got to be friends with your friend.
 
-## I want to know how to say good things to you.
+## 2) I want to know how to say good things to you.
 
 <br/>
 <br/>
