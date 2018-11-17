@@ -4,6 +4,10 @@
 ## Think a good thing about someone else in this room.
 
 <br/>
+people are interesting
+-bash: people: command not found
+<br/>
+strangers know more
 <br/>
 <br/>
 <br/>
